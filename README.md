@@ -1,0 +1,8 @@
+Bienvenue dans l'Écosystème Univers Gaming : Là où la Nostalgie rencontre la Puissance Pure.
+​Marre des consoles bas de gamme qui lâchent après deux sessions ? Nous aussi. Chez Univers Gaming, nous ne sommes pas de simples revendeurs, mais des architectes de votre expérience de jeu. Nous traquons les pépites technologiques d'Anbernic, Retroid et AYANEO pour les mettre entre vos mains, optimisées et prêtes au combat.
+​Ce qui nous sépare des autres :
+​L'Exigence Hardware : Chaque console est sélectionnée pour son rapport processeur/fluidité. Si ça lag, ça ne rentre pas en stock.
+​Agilité Financière : Le seul store qui parle votre langue. Payez instantanément via Orange Money, Moov Money, Wave ou en USDT (TRC20).
+​Logistique Blindée : Oubliez l'incertitude. Avec notre "Captain Protection", votre colis est sécurisé, tracé et garanti jusqu'à Bamako.
+​L'Expertise Root & Emulation : Nous connaissons nos machines de l'intérieur. De la configuration PPSSPP à l'optimisation Android, nous parlons technique, pas seulement marketing.
+​Ne vous contentez pas de jouer. Dominez vos classiques avec le meilleur matos actuel.
